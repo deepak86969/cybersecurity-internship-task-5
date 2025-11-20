@@ -1,1 +1,0 @@
-# cybersecurity-internship-task-5
